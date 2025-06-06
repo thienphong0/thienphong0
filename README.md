@@ -37,5 +37,5 @@ Let's connect and learn together! 🌍💬
 
 ---
 
-**“Learning never exhausts the mind.”
+**“Learning never exhausts the mind.”**
 
